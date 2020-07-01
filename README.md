@@ -3,8 +3,8 @@
 
 
 
-Project motive and objective is to justify for specially abled persons personsAs of 2020, over 1 billion people are visually impaired in some manner.
-We see this as an opportunity to make a loyal customer base, assisting them to make healthier and more life-conscious decisions.
+Project motive and objective is to justify for specially abled  persons.As of 2020, over 1 billion people are visually impaired.
+We see this as an opportunity and addressing  to make a social justice to people, assisting them to make healthier and more life-conscious decisions.
 .So Virtual Assistant helps to  sort out the below issues in writing examinations.
 
 
